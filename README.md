@@ -1,4 +1,4 @@
-## Azota Bypass hàng chờ
+## Azota Bypass hàng chờ:
 Xoá con mợ nó cái hàng chờ này đi! Hữu dụng cho anh em nào còn 5 phút để ôn thi:
 
 ![img](https://r2.katari.dev/azota-bypass/Screenshot%202026-10-07%20191715.png)
@@ -111,3 +111,8 @@ Xoá con mợ nó cái hàng chờ này đi! Hữu dụng cho anh em nào còn 5
 
 ![tamper](https://r2.katari.dev/azota-bypass/sdgsrea.png)
 
+
+
+
+---
+Nếu có điều kiện. Vẫn nên nạp tiền ủng hộ đội ngũ Azota nhé ^^. Cách chỉ dùng cho AE đỗ nghèo khỉ.
